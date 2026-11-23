@@ -43,4 +43,4 @@ I turn messy business problems into clean requirements — and clean requirement
 
 ---
 
-*Currently: prepping for the CELPIP exam (Oct 11) and applying to junior BA / developer roles in Toronto.* 🇨🇦
+*Currently: applying to junior BA / developer roles in Toronto.* 🇨🇦
